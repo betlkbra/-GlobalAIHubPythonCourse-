@@ -1,0 +1,2 @@
+# -GlobalAIHubPythonCourse-
+Betül Kübra ARSLAN
